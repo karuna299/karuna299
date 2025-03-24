@@ -4,7 +4,7 @@
 - 💞️ just want to upgrade myself to survive in this comepitating world
 - 📫 How to reach me : its better not to reach for now
 - 😄 Pronouns: its only she/her
-- ⚡ Fun fact: im trying to survive in this harsh world ok!
+- ⚡ Fun fact: im trying to survive in this harsh world ok! that is also fun 
 
 <!---
 karuna299/karuna299 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
